@@ -1,3 +1,3 @@
 Gwolgamott
 
-Guy Wolgamott Metalworks Employee Github account.
+Guy Wolgamott Metalwork's Employee Github account.
